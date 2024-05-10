@@ -1,6 +1,7 @@
+![Professional Web Designer & WordPress Expert](https://media.licdn.com/dms/image/D5616AQGw5RRLaORyGA/profile-displaybackgroundimage-shrink_350_1400/0/1714799978687?e=1720656000&v=beta&t=y5Cw_POGJcRolXCbyiOu2dLTepSEVwpgUVI5jZqKtCw)
 ### Hi there 👋, My name is Shafi Ullah
 #### Professional Web Designer & WordPress Expert
-![Professional Web Designer & WordPress Expert](https://media.licdn.com/dms/image/D5616AQGw5RRLaORyGA/profile-displaybackgroundimage-shrink_350_1400/0/1714799978687?e=1720656000&v=beta&t=y5Cw_POGJcRolXCbyiOu2dLTepSEVwpgUVI5jZqKtCw)
+
 
 Hello, I’m Shafiullah, a seasoned Web Developer & WordPress specialist with a talent for creating compelling online experiences. Having worked in the field for 4 years, I'm passionate about turning creative concepts into websites that are both aesthetically pleasing and useful and make a lasting impact.
 
